@@ -1,1 +1,3 @@
-# .github
+# *Welcome to Your Inner Universe: Your true universe isn’t out there—it's within you*
+## *Unlock 15 surprising facts about your inner universe that will inspire, awaken, and transform your spiritual journey. Discover the secrets within. Your journey to self-discovery starts within. Explore these profound insights about the vast cosmos that exists inside you. Ready to Explore Your Inner Cosmos? Your inner universe is calling. Will you answer? Start with just 5 minutes of daily meditation. Ask your inner self one question each morning. Trust the answers that arise. The greatest adventure isn't out there – it's the infinite journey within.* [More details…](https://spiritualkhazaana.com/web-stories/welcome-to-your-inner-universe/)
+## #InnerUniverse #SpiritualAwakening #ConsciousnessExpansion #SelfDiscovery #SoulJourney
